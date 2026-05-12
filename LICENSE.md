@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with elite Automation for new token sniper bot | meme-coin-scanning & buy-pressure-analysis, the #1 new token sniper bot. Includes meme-coin-scanning and
 
 
 
